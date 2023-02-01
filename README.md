@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **irem2003erturk@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/truer/Downloads/CV%20-%20%C4%B0rem%20Ert%C3%BCrk%20(2).pdf](https://drive.google.com/file/d/1MRpjKojg8C649RU2gzbWJSiT8k7dt5Uv/view?usp=sharing)
+- 📄 Know about my experiences [CV](file:///C:/Users/truer/Downloads/CV%20-%20%C4%B0rem%20Ert%C3%BCrk%20(2).pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

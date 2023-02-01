@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **irem2003erturk@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1CWyos1M7tb477LDFT122CzE_NaEnNgQY/view?usp=sharing](https://drive.google.com/file/d/1CWyos1M7tb477LDFT122CzE_NaEnNgQY/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1WZPdrHFQf1f8UAMnhj4tCl2xYj86RMur/view?usp=sharing](https://drive.google.com/file/d/1WZPdrHFQf1f8UAMnhj4tCl2xYj86RMur/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
